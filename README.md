@@ -2,7 +2,7 @@
 ![Followers](https://bilistats.lonelyion.com/followers?uid=262366744)
 ## <h><center>Mae govannen👋</center></h>
 
-I’m From China, where I made friends with a powerful and glorious **dragon**! _(This is real, **not a human**. I swear.)_
+I’m from China, where I made friends with a powerful and glorious **dragon**! _(This is real, **not a human**. I swear.)_
 And now we still have a good time with each other. *owo*
 
 I have played Minecraft for over ten years, so yeah, I definitely love this game pretty much.
