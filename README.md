@@ -12,7 +12,7 @@ I enjoy providing Minecraft mods with Chinese translations for free.📜
 And Don't worry, I'll do it wholeheartedly. Translation is a wonderful thing!❤️
 
 And I help lots of people to solve the crash hidden deep under Minecraft.   
-I also posted quite a few crash solution articles in Bilibili.  
+I also posted quite a few crash solution articles on Bilibili.  
 Of course it won't be charged, helping others is also a wonderful thing~ :3
 
 _Friendship is magic_ is the best animation!  
