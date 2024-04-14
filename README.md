@@ -3,7 +3,7 @@
 
 ## Mae govannen👋
 
-I’m from China, where I made friends with a powerful and glorious **dragon**! _(This is real, **not a human**. I swear.)_  
+I’m from China, where I made friends with a powerful and glorious **dragon**! _(This is real, **not a lizard or human or something else**. I swear.)_  
 And now we still have a good time with each other. *owo*
 
 I have played Minecraft for over ten years, so yeah, definitely love this game pretty much.  
